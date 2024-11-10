@@ -13,7 +13,6 @@ I'm always open to a discussion 😊</h3>
 
 - 📫 How to reach me **abdulrahmanm.career@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
